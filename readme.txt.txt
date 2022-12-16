@@ -3,3 +3,6 @@ listen to my command..
 do your freaking job 
 bumb MF..
 get up and do it..
+
+
+Hi , its your friend
